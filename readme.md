@@ -1,4 +1,4 @@
 ## Integrantes
 
-Diana Lorena Yela Perez
-Jennifer Catalina Diaz Calderon
+-Diana Lorena Yela Perez
+-Jennifer Catalina Diaz Calderon
